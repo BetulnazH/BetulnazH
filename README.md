@@ -1,2 +1,2 @@
-- 👋 My old GitHub account: @Naz-bh
+- 👋 My other GitHub account: @Naz-bh
 
